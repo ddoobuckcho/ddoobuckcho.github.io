@@ -1,2 +1,0 @@
-# ddoobuckcho.github.io
-tjfaudaslkdjfalskdjfalksjdfkjafasdkljfaslkjdf
